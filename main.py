@@ -1,4 +1,6 @@
-Lupang Hinirang - Julian Felipe
+Lupang Hinirang - Julian Felipe 
+
+(FEATURING JUSTIN BIEBER)
 
 Bayang Magiliw
 Perlas ng Silanganan
@@ -10,4 +12,5 @@ Lupang Hinirang
 Duyan ka ng magiting
 
 
-Compiled by Ralf Tabo	
+Compiled by Ralf Tabo
+
