@@ -1,2 +1,2 @@
 Alab ng puso
-Sa dibdib mo'y buhay
+Sa dibdib moy buhay
