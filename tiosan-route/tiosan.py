@@ -1,5 +1,4 @@
 Bayang Magiliw
 Perlas ng Silanganan
-
+Sa manlulupig, di ka pasisiil
 by Tiosan
-Sa manlulupig, di ka pasisiil #dalhin sa line before by Tiosan
