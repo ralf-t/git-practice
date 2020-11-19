@@ -4,7 +4,7 @@ Bayang Magiliw
 Perlas ng Silanganan
 
 Alab ng puso
-Sa dibdib moy buhay
+Sa dibdib mogit y buhay
 
 Lupang Hinirang 
 Duyan ka ng magiting
